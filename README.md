@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **ML , DL , TABLEAU & POWER BI**
 
-- 📫 How to reach me **singh_ashutosh.tech@gmail.com**
+- 📫 How to reach me **singhashutosh.tech@gmail.com**
 
 - ⚡ Fun fact **I am Notorious**
 
